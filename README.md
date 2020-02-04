@@ -10,4 +10,4 @@ contains the papers published in that year.
 An important note please do not use this book for any commercial
 purposes. I do not own any copyright of the papers in any way. For adding
 the missing ones to this collection or for any suggestion, feel free to contact
-me at billalmasum93@g
+me at billalmasum93@gmail.com
